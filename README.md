@@ -10,7 +10,7 @@ aspiring to the better idea and then realizing it in a better way for the rest o
 
 In a nutshell, he's older but no lose.
 
-His Interests:
+His Interests
 =================
 
 1. Japanese drama
